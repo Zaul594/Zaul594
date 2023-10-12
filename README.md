@@ -1,0 +1,1 @@
+During my high school years, I developed an interest in computers when I enrolled in a computer maintenance class, particularly in regards to the software aspect. This fascination led me to pursue a bachelor's degree in computer information science in college, with the intention of continuing my learning beyond graduation.
